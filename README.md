@@ -1,1 +1,1 @@
-# My profile on Rosalind: rosalind.info/users/arian.gohari/
+# My profile on Rosalind: www.rosalind.info/users/arian.gohari/
